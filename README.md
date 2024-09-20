@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Tristan Martin. 
-I am currently working at University Grenolpes Rhones on Fossils Fuels. 
+I am currently working at University Grenoble Rhones Alpes on Fossils Fuels. 
